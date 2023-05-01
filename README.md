@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **jkumarsheoran2612@gmail.com**
 
-- ⚡ Fun fact **I am Also An Content Creator on YouTube. Channel Name "JKTHECREATOR""**
+- ⚡ Fun fact ** I am Also An Content Creator on YouTube. Channel Name "JKTHECREATOR" **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
